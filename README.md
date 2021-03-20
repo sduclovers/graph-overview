@@ -2,7 +2,7 @@ Hi
 
 
 Наааз⭕️⭕️⭕️123
-
+--- tomi
 ![image](https://user-images.githubusercontent.com/78643530/111818474-678df680-8909-11eb-850b-e80b119f68b2.png)
 ![image](https://user-images.githubusercontent.com/78643530/111819003-09154800-890a-11eb-915d-cc9e7ba6f080.png)
 ![image](https://user-images.githubusercontent.com/78643530/111819084-22b68f80-890a-11eb-8189-0d61bec2d45c.png)
@@ -11,3 +11,4 @@ Hi
 ![image](https://user-images.githubusercontent.com/78643530/111819220-4b3e8980-890a-11eb-820f-6a49faf8bfdc.png)
 
 ![image](https://user-images.githubusercontent.com/78643530/111819271-585b7880-890a-11eb-914a-351cefb6d3be.png)
+---
