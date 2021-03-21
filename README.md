@@ -2,6 +2,25 @@ Hi
 
 
 Наааз⭕️⭕️⭕️123
+
+
+---------------------------------------------------- Dilyara
+<img width="796" alt="Снимок экрана 2021-03-21 в 21 29 16" src="https://user-images.githubusercontent.com/79353855/111912783-0858ef00-8a8d-11eb-835c-f3014bc22132.png">
+<img width="797" alt="Снимок экрана 2021-03-21 в 21 29 42" src="https://user-images.githubusercontent.com/79353855/111912790-0ee76680-8a8d-11eb-8dc0-00638f0cfdbb.png">
+<img width="795" alt="Снимок экрана 2021-03-21 в 21 29 54" src="https://user-images.githubusercontent.com/79353855/111912793-13138400-8a8d-11eb-8752-a025eb1822e0.png">
+<img width="794" alt="Снимок экрана 2021-03-21 в 21 30 06" src="https://user-images.githubusercontent.com/79353855/111912799-1870ce80-8a8d-11eb-94e8-32636d91be36.png">
+<img width="796" alt="Снимок экрана 2021-03-21 в 21 30 28" src="https://user-images.githubusercontent.com/79353855/111912805-1eff4600-8a8d-11eb-81cc-01a5633fcc7d.png">
+<img width="797" alt="Снимок экрана 2021-03-21 в 21 30 42" src="https://user-images.githubusercontent.com/79353855/111912817-24f52700-8a8d-11eb-91d2-3421f7bb8c02.png">
+<img width="797" alt="Снимок экрана 2021-03-21 в 21 30 54" src="https://user-images.githubusercontent.com/79353855/111912818-29214480-8a8d-11eb-85d6-59515c6039dd.png">
+<img width="795" alt="Снимок экрана 2021-03-21 в 21 31 09" src="https://user-images.githubusercontent.com/79353855/111912822-2cb4cb80-8a8d-11eb-9b78-270c942e86c1.png">
+<img width="794" alt="Снимок экрана 2021-03-21 в 21 31 19" src="https://user-images.githubusercontent.com/79353855/111912826-2fafbc00-8a8d-11eb-99dc-9f477220fd70.png">
+<img width="794" alt="Снимок экрана 2021-03-21 в 21 31 31" src="https://user-images.githubusercontent.com/79353855/111912830-36d6ca00-8a8d-11eb-99c5-549b99770658.png">
+<img width="794" alt="Снимок экрана 2021-03-21 в 21 31 48" src="https://user-images.githubusercontent.com/79353855/111912832-3b02e780-8a8d-11eb-980d-3ee6c112f6bd.png">
+<img width="795" alt="Снимок экрана 2021-03-21 в 21 31 59" src="https://user-images.githubusercontent.com/79353855/111912836-41915f00-8a8d-11eb-9519-b57c83b2cbb6.png">
+<img width="795" alt="Снимок экрана 2021-03-21 в 21 32 11" src="https://user-images.githubusercontent.com/79353855/111912838-448c4f80-8a8d-11eb-8812-0457b28af071.png">
+<img width="793" alt="Снимок экрана 2021-03-21 в 21 32 22" src="https://user-images.githubusercontent.com/79353855/111912846-4a823080-8a8d-11eb-84ea-6cdaaf921d2d.png">
+<img width="795" alt="Снимок экрана 2021-03-21 в 21 32 33" src="https://user-images.githubusercontent.com/79353855/111912855-4f46e480-8a8d-11eb-93a6-c13e9dac42b7.png">
+
 ---------------------------------------------------- Tommy
 ![image](https://user-images.githubusercontent.com/78643530/111818474-678df680-8909-11eb-850b-e80b119f68b2.png)
 ![image](https://user-images.githubusercontent.com/78643530/111819003-09154800-890a-11eb-915d-cc9e7ba6f080.png)
