@@ -13,3 +13,11 @@ Hi
 ![image](https://user-images.githubusercontent.com/78643530/111877861-7212c380-89cf-11eb-972a-baa9cb1e7c95.png)
 ![image](https://user-images.githubusercontent.com/78643530/111819271-585b7880-890a-11eb-914a-351cefb6d3be.png)
 ------------------------------------------------------------------------
+---------------------------------------------------- Temirlan
+![image](https://user-images.githubusercontent.com/68343687/111901079-062c6b80-8a60-11eb-89fb-b034229a667f.png)
+![image](https://user-images.githubusercontent.com/68343687/111901086-0b89b600-8a60-11eb-9dcf-76d1e3a4cfd7.png)
+![image](https://user-images.githubusercontent.com/68343687/111901093-12b0c400-8a60-11eb-9760-79abfb9e00b4.png)
+![image](https://user-images.githubusercontent.com/68343687/111901097-180e0e80-8a60-11eb-8a7d-c5542c3d4ed7.png)
+![image](https://user-images.githubusercontent.com/68343687/111901101-1e03ef80-8a60-11eb-9c38-469a18e16dfa.png)
+![image](https://user-images.githubusercontent.com/68343687/111901105-22300d00-8a60-11eb-8faf-88dc2c8a4ad6.png)
+------------------------------------------------------------------------
