@@ -1,11 +1,4 @@
-hey
-Hi
 
-
-Наааз⭕️⭕️⭕️123
-
-
----------------------------------------------------- Dilyara
 <img width="796" alt="Снимок экрана 2021-03-21 в 21 29 16" src="https://user-images.githubusercontent.com/79353855/111912783-0858ef00-8a8d-11eb-835c-f3014bc22132.png">
 <img width="797" alt="Снимок экрана 2021-03-21 в 21 29 42" src="https://user-images.githubusercontent.com/79353855/111912790-0ee76680-8a8d-11eb-8dc0-00638f0cfdbb.png">
 <img width="795" alt="Снимок экрана 2021-03-21 в 21 29 54" src="https://user-images.githubusercontent.com/79353855/111912793-13138400-8a8d-11eb-8752-a025eb1822e0.png">
